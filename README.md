@@ -174,4 +174,4 @@ N.t.PP1 überarbeitet
   
   https://circuitverse.org/users/305867/projects/p1p1n-t
   
-  **Remember:** Stop working after 90 minutes and record where you stopped!
+I`m stop the projet after 102 min (+6 for a error by formation)
